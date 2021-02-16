@@ -6,7 +6,7 @@ Welcome to _Flavor_, the only place on the planet where your taste buds won't be
 [Cranberries and Pine Nuts](/recipe/feb/)
 
 
-
+<3
 
 ## Picks of the Month
 
